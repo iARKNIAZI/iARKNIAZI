@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iARKNIAZI
+- 👀 I’m interested in Digital Payments 
+- 🌱 I’m currently learning AI and ML in Fintech Products
+- 💞️ I’m looking to collaborate on above mentioned projects 
+- 📫 How to reach me abdulraziq.khanniazi@gmail.com 
